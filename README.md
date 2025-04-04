@@ -1,1 +1,2 @@
-# Joe-A-Yoo
+# Team joayou
+> 조아유~
