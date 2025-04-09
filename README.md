@@ -1,4 +1,4 @@
-# 🎯 Team 조아유 (joayou)
+# 🎯 Team 조아유 (choayou)
 
 ---
 
